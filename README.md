@@ -1,7 +1,7 @@
 ### Jaluk
 **[Download Jaluk]()** now!
 
-**Join and liberalize universal knowledge**
+**Join and liberalize universal knowledge**.
 With Jaluk you can test your IQ anytime anywhere.
 ![jaluk](https://bit.ly/2O0WhVh)
 
